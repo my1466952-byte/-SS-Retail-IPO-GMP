@@ -141,10 +141,4 @@ The **SS Retail IPO GMP** can help investors understand unofficial market sentim
 
 However, GMP should be considered only as one part of IPO research. Investors should also evaluate the company's financial performance, valuation, business prospects, IPO structure, and associated risks before making any investment decision.
 
----
 
-### Source
-
-For the latest SS Retail IPO information, visit:
-
-[**Finowings – SS Retail IPO GMP**](https://www.finowings.com/IPO/ss-retail-ipo)
